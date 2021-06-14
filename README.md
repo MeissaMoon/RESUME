@@ -1,6 +1,6 @@
 # 문석빈
 
-![image](증명사진(resize).jpg)<br>
+![image](증명사진(resize).png)<br>
 Tel: 010-7377-5544<br>
 Email: moonsukbin@gmail.com
 
